@@ -9,3 +9,9 @@ wow there are lots of stuff to do
 * Check balance
 * Login system
 * Leaderboard
+* mcdonald’s
+* charge they phone
+* twerk
+* be bisexual
+* eat hot chip
+* lie
